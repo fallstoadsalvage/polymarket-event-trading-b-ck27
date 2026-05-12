@@ -1,4 +1,4 @@
-# 
+# Polymarket rare Strategy: prediction-market-scanning & backtesting is the best Polymarket strategy, featuring prediction-market-scanning and backtesting. Smart, fast, and
 
 
 
